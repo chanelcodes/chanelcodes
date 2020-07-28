@@ -5,5 +5,5 @@ I'm a Front-end developer based in Toronto, Canada 🇨🇦
 - 💻  I’m looking to collaborate on open source projects & YouTube.
 - 💬  Ask me anything webdesign & strategy.
 - 😄  Pronouns: she/her
-- 📫  How to reach me:[Instagram](https://www.instagram.com/chanel_codes/)
+- 📫  How to reach me: [Instagram](https://www.instagram.com/chanel_codes/)
 - ⚡  Fun fact: I aspire to be a dog owner some day.
